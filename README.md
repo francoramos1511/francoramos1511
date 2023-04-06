@@ -3,5 +3,3 @@
 - Acualmente soy estudiante de ingeniería en sistemas en la ORT 🤓
 - Me gusta programar y en mi tiempo libre voy al gimnasio 💪
 - Para contactarme sigueme en mi instagram @francoramos_1511 🤙
-
-prueba3
